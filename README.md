@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...anything data analytic related
 - 📫 How to reach me ...Discord: Megachanzie
 - 😄 Pronouns: ...She/Her
-- ⚡ Fun fact: ...Im sort of a jack of all trades 
+- ⚡ Fun fact: ...I love to lift weights
 
 <!---
 Megachanzie/Megachanzie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
